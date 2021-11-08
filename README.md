@@ -1,2 +1,1 @@
-# 7Pro7z
-Coming soon.
+# 7Pro7z (Coming Soon)
